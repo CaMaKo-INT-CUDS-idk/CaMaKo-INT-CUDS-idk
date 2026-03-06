@@ -1,7 +1,11 @@
 - _So, basically, I would like to say a few things about myself. It'd be nicer if anyone could ask questions and I could reply, but whatever._
+  
 - I'm a creative person. I like to draw and write, but mostly stick to playing games due to getting tired easily or losing inspiration.
+  
 - I'm bilingual, Spanish being my native language. I'm also Pan but that's unrelated.
+  
 - I got a whole universe of original characters I one day plan to put on a game or a series.
+  
 - Finally, my favorite fandoms, in order of my most prefered to the one I least interact with:
 Sonic: I don't really interact with that many people from this fandom, rather interacting with fiction pieces or actual material.
 Five Nights at Freddy's: har har har harhar har harharhar har. Okay I love the theories and I love to chat about this. Also Dayshift at Freddy's is one of my favorite fangame series.
